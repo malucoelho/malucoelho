@@ -35,7 +35,7 @@ Meu universo mistura tecnologia, criatividade e um toque de magia (e drama, clar
 
 ---
 
- 📫 Me encontra aqui:
+ 📫 Para contato PROFISSIONAL:
 
 📧 cmalu355@gmail.com  
 📁 [Veja meu portfólio no GitHub Pages](https://malucoelho.github.io/portfolio-malucoelho/)
