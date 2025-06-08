@@ -30,6 +30,7 @@ Meu universo mistura tecnologia, criatividade e um toque de magia (e drama, clar
 - “Shaun, o Carneiro” e “Labubus” 🐑🪄  
 - O dia em que Stevie Nicks cantou *Silver Springs* pro ex (em 1997!) e deixou um clima péssimo no palco  
 - Jogos (sou viciada em FPS de primeira pessoa, mas também amo jogos de escolhas e historinhas!) 🎮
+- Livros 
 - GAME OF THRONES!!!!
 
 ---
